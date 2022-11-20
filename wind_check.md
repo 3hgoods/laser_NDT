@@ -18,3 +18,10 @@ https://www.youtube.com/watch?v=0ox_h_hQpHU
 
 
 ```
+
+- 드론으로 촬영 검사
+```
+https://www.youtube.com/watch?v=0CxZTH9ibUM
+
+
+```
